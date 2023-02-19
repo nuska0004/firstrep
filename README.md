@@ -1,3 +1,0 @@
-# firstrep
-Precties
-Nuska
